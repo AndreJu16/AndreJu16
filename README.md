@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-Perkenalkan nama saya **Andre Juan Simanjuntak**.\
+Perkenalkan nama saya **Andre Juan Simanjuntak**.
 
 Saya seorang **Mahasiswa** 
 
