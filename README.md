@@ -1,9 +1,9 @@
 ### Hi there 👋
 
 
-Perkenalkan nama saya **Andre Juan Simanjuntak**.
+My Name is **Andre Juan Simanjuntak**.
 
-Saya seorang **Mahasiswa** 
+**Kaizen** made me learn every day gradually
 
 
 saya sedang tahap belajar mengembangkan diri.
